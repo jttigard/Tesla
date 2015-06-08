@@ -1,5 +1,4 @@
-Top Torrents
-
+Top Torrents:
 http://torrentz.eu/
 http://www.bitsnoop.com/
 http://www.torrentfunk.com/
